@@ -1,4 +1,4 @@
-Pj Metz
-BMCHS
+Pj Metz Todd McFarlin
+BMCHS DPI
 
-Wasabi Almonds. 
+Wasabi Almonds Dark Chocolate 
