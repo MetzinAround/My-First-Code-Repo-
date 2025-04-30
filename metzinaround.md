@@ -1,4 +1,4 @@
-Pj Metz, Todd McFarlin
-BMCHS, DPI
+Pj Metz, Todd McFarlin, Stew Dent
+BMCHS, DPI, CMBHS
 
-Wasabi Almonds, Dark Chocolate 
+Wasabi Almonds, Dark Chocolate, Regular Almonds
