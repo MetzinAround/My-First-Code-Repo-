@@ -1,4 +1,4 @@
-Pj Metz
-BMCHS
+Pj Metz, Stew Dent
+BMCHS, CMBHS
 
-Wasabi Almonds. 
+Wasabi Almonds. Regular almonds
